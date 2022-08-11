@@ -2,6 +2,7 @@
 
 ![45316FA1-D9E8-4C21-BA28-7914B070C04C](https://user-images.githubusercontent.com/66063199/181708198-90600989-d0c8-422b-8c36-365bcaa79218.gif)
 
+![sticker](https://user-images.githubusercontent.com/66063199/184106907-a5aea97e-4e3f-4fbd-9f80-388900b3e570.png)
 
 # ***PLEASE GIVE OUR SHADERS BACK!***
 # **REMOVE RenderDragon!**
